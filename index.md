@@ -20,6 +20,6 @@ is de oudste vogel op aarde.
 
 # andescondor
 
-![image](https://user-images.githubusercontent.com/123823977/215283616-fb465eef-537f-4784-8f43-c42d367e5806.png)
+![image](https://user-images.githubusercontent.com/123823977/215283700-ffea4e9e-f802-46f7-9bf2-a996ead49452.png)
 
 is de grootste vogel op aarde 
