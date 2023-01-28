@@ -12,9 +12,9 @@ wat is de vijand van de vogel. De vos, hermelijn, wezel, bunzing, steenmarter, b
 
 ![image](https://user-images.githubusercontent.com/123823977/215281517-ecc97ed9-990d-41a4-86d4-8c2229bcbe0a.png)
 
-de oudste vogel op aarde is de albatros.
-
 # albatros
 
 ![image](https://user-images.githubusercontent.com/123823977/215281969-cc4c1a01-5b63-4a9f-8904-ab7310b67fd4.png)
+
+de oudste vogel op aarde is de albatros.
 
