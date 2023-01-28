@@ -6,9 +6,11 @@ de meest voorkomende vogel op aarde is de gedomesticeerde domesticeerde kip met 
  # huismus
 ![image](https://user-images.githubusercontent.com/123823977/215277893-bced2a40-6fdb-415e-8734-ee0be4548ad0.png)
 
-wat is de vijand van de vogel. De vos, hermelijn, wezel, bunzing, steenmarter, boommarter. en wolf
+wat is de vijand van de vogel. De vos, hermelijn, wezel, bunzing, steenmarter, boommarter. en de wolf.
 
-# boommarter![image](https://user-images.githubusercontent.
+# boommarter 
+
+![image](https://user-images.githubusercontent.com/123823977/215281517-ecc97ed9-990d-41a4-86d4-8c2229bcbe0a.png)
 
 de oudste vogel op aarde is de albatros.
 
