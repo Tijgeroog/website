@@ -36,4 +36,8 @@ Lijkt wel wat op de koolmees, maar heeft een blauw petje en geen zwarte stropdas
 
 ![image](https://user-images.githubusercontent.com/123823977/215334818-05f0ab80-8a97-4716-8ac2-062222b037d9.png)
 
+# Roodborst
 
+In tuinen een tam vogeltje, in bossen kruipt hij liever weg tussen struiken en planten. Roodborsten zijn nogal vechtlustig en verdedigen hun territorium fanatiek, soms zelfs op leven en dood. Om geen agressie op te wekken bij de ouders hebben jongen nog geen rode borstveren. Roodborsten tikken weleens tegen het raam. Niet omdat ze naar binnen willen zoals het oude kinderliedje klinkt: “Roodborstje tikt tegen ‘t raam, tik, tik, tik. Laat mij erin. Laat mij erin.” Maar ze zien in hun eigen spiegelbeeld een rivaal die ze weg willen jagen. Dat gaat soms zo ver dat het roodborstje gewond of uitgeput raakt.
+
+![image](https://user-images.githubusercontent.com/123823977/215334952-0e256632-55ea-4611-8912-9268731f4d1c.png)
