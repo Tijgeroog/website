@@ -49,3 +49,15 @@ hij de baas is in het territorium. Elke merel zingt zijn eigen lied. Buurmannen 
 Je ziet hem vaak op het gazon hippen, op zoek naar regenwormen. Merels eten echt van alles: vruchten, zaden, bessen, insecten, spinnen, pissebedden, slakken en oorwurmen. Laat 's winters de bladeren in je tuin liggen, want daar leven dit soort diertjes en kan de merel voldoende voedsel vinden. Plant struiken met bessen of leg eens wat appels voor hem op de voedertafel of onder de struiken.  Als de merel goed gevoed is, is hij ook beter bestand tegen de merelziekte, die de laatste jaren heel wat slachtoffers maakt.
 
 ![image](https://user-images.githubusercontent.com/123823977/215335560-11a322ce-b66c-4658-9446-8d769de396fa.png)
+
+# Vink
+
+Dat de vink een zadeneter is, zie je aan zijn stevige snavel. Je ziet ze in je tuin vaak onder de voedertafel scharrelen, waar hij zaadjes oppikt die andere vogels hebben laten vallen. Knoppen van planten en struiken eet hij ook. In het broedseizoen schakelt de vink over naar een dieet van insecten.
+
+![image](https://user-images.githubusercontent.com/123823977/215335749-b640d3d8-7049-4a1c-92b8-4e33374bb146.png)
+
+# Huiszwaluw
+
+Nestelen gezellig met een groepje onder de dakrand of dakgoot. Tenminste, als je nog zwaluwen ziet. Want het gaat niet goed met de boerenzwaluw en huiszwaluw. Er zijn minder plekken om te broeden en minder om te eten. De huiszwaluw eet enorme aantallen muggen. Je kunt ze helpen door een zwaluwkast onder je dakrand te hangen.
+
+![image](https://user-images.githubusercontent.com/123823977/215335781-8bc486ad-11c7-46bf-9461-71994c87b5d7.png)
