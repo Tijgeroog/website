@@ -58,6 +58,7 @@ Dat de vink een zadeneter is, zie je aan zijn stevige snavel. Je ziet ze in je t
 
 # Huiszwaluw
 
-Nestelen gezellig met een groepje onder de dakrand of dakgoot. Tenminste, als je nog zwaluwen ziet. Want het gaat niet goed met de boerenzwaluw en huiszwaluw. Er zijn minder plekken om te broeden en minder om te eten. De huiszwaluw eet enorme aantallen muggen. Je kunt ze helpen door een zwaluwkast onder je dakrand te hangen.
+Nestelen gezellig met een groepje onder de dakrand of dakgoot. Tenminste, als je nog zwaluwen ziet. Want het gaat niet goed met de boerenzwaluw en huiszwaluw. Er zijn minder plekken om te broeden en minder om te eten. De huiszwaluw eet enorme aantallen muggen. Je kunt ze helpen door een zwaluwkast onder je dakrand te hangen
 
-![image](https://user-images.githubusercontent.com/123823977/215335781-8bc486ad-11c7-46bf-9461-71994c87b5d7.png)
+![image](https://user-images.githubusercontent.com/123823977/215335922-b0724034-365b-418f-be62-f987b6d387c2.png)
+
