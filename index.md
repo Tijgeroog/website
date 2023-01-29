@@ -41,3 +41,11 @@ Lijkt wel wat op de koolmees, maar heeft een blauw petje en geen zwarte stropdas
 In tuinen een tam vogeltje, in bossen kruipt hij liever weg tussen struiken en planten. Roodborsten zijn nogal vechtlustig en verdedigen hun territorium fanatiek, soms zelfs op leven en dood. Om geen agressie op te wekken bij de ouders hebben jongen nog geen rode borstveren. Roodborsten tikken weleens tegen het raam. Niet omdat ze naar binnen willen zoals het oude kinderliedje klinkt: “Roodborstje tikt tegen ‘t raam, tik, tik, tik. Laat mij erin. Laat mij erin.” Maar ze zien in hun eigen spiegelbeeld een rivaal die ze weg willen jagen. Dat gaat soms zo ver dat het roodborstje gewond of uitgeput raakt.
 
 ![image](https://user-images.githubusercontent.com/123823977/215334952-0e256632-55ea-4611-8912-9268731f4d1c.png)
+
+# merel
+In het voorjaar klinkt hun melodieuze zang door tuinen en parken. Het mannetje laat vanaf en hoge plek zoals een boomtop of dak weten, dat
+hij de baas is in het territorium. Elke merel zingt zijn eigen lied. Buurmannen zijn dan ook minder agressief tegen elkaar, omdat ze elkaar herkennen aan de zang. Door veel te oefenen verbeteren merels hun zang en breiden ze hun repertoire uit door andere vogels te imiteren.
+
+Je ziet hem vaak op het gazon hippen, op zoek naar regenwormen. Merels eten echt van alles: vruchten, zaden, bessen, insecten, spinnen, pissebedden, slakken en oorwurmen. Laat 's winters de bladeren in je tuin liggen, want daar leven dit soort diertjes en kan de merel voldoende voedsel vinden. Plant struiken met bessen of leg eens wat appels voor hem op de voedertafel of onder de struiken.  Als de merel goed gevoed is, is hij ook beter bestand tegen de merelziekte, die de laatste jaren heel wat slachtoffers maakt.
+
+![image](https://user-images.githubusercontent.com/123823977/215335560-11a322ce-b66c-4658-9446-8d769de396fa.png)
