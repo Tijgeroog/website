@@ -29,3 +29,11 @@ is de grootste vogel op aarde
 De kleinste (Bijkolibrie, Mellisuga Helenae) weegt 1,8 gram. De in Noord-Amerika meest voorkomende kolibrie (Robijnkeelkolibrie, Archilochus colubris) weegt ongeveer 3 gram en is 7,6 cm groot.
 
 ![image](https://user-images.githubusercontent.com/123823977/215308701-72828c04-3bd0-4afe-8e6d-ef8bef7d7404.png)
+
+# Pimpelmees
+
+Lijkt wel wat op de koolmees, maar heeft een blauw petje en geen zwarte stropdas. Ook voor pimpelmezen vormen rupsen vaak de bulk van het voedsel voor hun jongen. Zo houden in een natuurlijke tuin allerlei dieren de rupsen in toom en krijg je geen rupsenplaag.
+
+![image](https://user-images.githubusercontent.com/123823977/215334818-05f0ab80-8a97-4716-8ac2-062222b037d9.png)
+
+
