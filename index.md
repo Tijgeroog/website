@@ -23,3 +23,9 @@ is de oudste vogel op aarde.
 ![image](https://user-images.githubusercontent.com/123823977/215283700-ffea4e9e-f802-46f7-9bf2-a996ead49452.png)
 
 is de grootste vogel op aarde 
+
+# kolibrie
+
+De kleinste (Bijkolibrie, Mellisuga Helenae) weegt 1,8 gram. De in Noord-Amerika meest voorkomende kolibrie (Robijnkeelkolibrie, Archilochus colubris) weegt ongeveer 3 gram en is 7,6 cm groot.
+
+![image](https://user-images.githubusercontent.com/123823977/215308701-72828c04-3bd0-4afe-8e6d-ef8bef7d7404.png)
